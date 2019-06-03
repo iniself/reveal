@@ -48,9 +48,14 @@ Warehouse and Logistics     Human Resources and Payroll     Finance and Accounti
 
 ### 团队 ？
 
-项目负责人： (peterl@hwccl.com)
-项目经理：王轶蔚 (akiraw@hwccl.com)
+项目负责人：龙睿 (peterl@hwccl.com)  
+
+项目经理：王轶蔚 (akiraw@hwccl.com)  
+
 项目成员：陈欢欢、王俊雯
+
+
+经验和资质
 
 
 
